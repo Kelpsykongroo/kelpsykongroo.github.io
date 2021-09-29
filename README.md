@@ -1,7 +1,3 @@
-# Welcome!
-
- 
-
 ## I'm Kelvy Mendonça!
 
  
